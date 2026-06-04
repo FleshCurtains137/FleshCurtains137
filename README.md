@@ -34,7 +34,7 @@ You will usually find me by the Cafe , at spawn or by the docks ! Im usually try
 
 Please dont interact if youre <img width="16" height="16" alt="18-C0-AD06-7-C65-48-EC-9265-7-C75-EBDF3-E1-A" src="https://github.com/user-attachments/assets/d2935caa-33f4-4ab7-9dd6-e9c3d0dfe51e" />
 
-- under 15
+- **__under 15__**
 - pro/dark shipper whatever you call yourselves i dont care stay away from me
 - against contradictory labels (Lesboy , Turigirl , Gaybian)
 - Basic DNI criteria
