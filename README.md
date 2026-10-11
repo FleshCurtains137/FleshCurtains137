@@ -9,5 +9,7 @@ i am a system most of my ponies are alters in my system do not be weird to my fi
 basic dni , pro/darkshippers , endo/willowgenic systems , radqueer .  fictionkins & IRLs on very thin ice
 <br>
 if you want to be friends outside of ponytown just ask me ill probably give you my discord
+<br>
+<br>
 <img width="146" height="292" alt="rabidredsalsa-borderlands" src="https://github.com/user-attachments/assets/242a5a25-7ccc-42a4-a19e-ff5250384356" />
 
